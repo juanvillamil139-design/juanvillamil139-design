@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I'm Juan, a Math major based in the U.S.
+I'm Juan, a upcoming Math major based in the U.S.
 
 I like to bring my ideas to life.
 
